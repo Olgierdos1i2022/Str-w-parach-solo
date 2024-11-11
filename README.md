@@ -1,0 +1,1 @@
+# Str-w-parach-solo
